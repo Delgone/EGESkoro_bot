@@ -1,0 +1,1 @@
+# EGESkoro_bot
